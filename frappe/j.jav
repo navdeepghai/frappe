@@ -1,2 +1,0 @@
-nadda
-navdeep singh
